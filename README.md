@@ -1,3 +1,3 @@
-# Coursework_Databases-_and_know
+# Coursework_Databases_and_know
 
 2 курс
